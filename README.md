@@ -1,2 +1,2 @@
 # KHNBP
-Yang kita kira MPLS TK... Taunya UTBK... (Universitas Taman Belajar Kerham). YAHAHAHA KENA PRANK! Eh tapi, lulus nggak kalian?
+SKHBP resmi keluar. Bagi murid-murid yang lolos, silahkan ambil stiker ⭐ di ibu/bapak guru ya! Dan yang belum lolos bisa daftar lagi di semester depan 🤍
